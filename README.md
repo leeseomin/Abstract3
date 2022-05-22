@@ -6,8 +6,9 @@ Abstract 3 by LEE SEOMIN
 
 
  <br/><br/>
+https://opensea.io/collection/abstract-2-by-lee-seomin
 
-
+ <br/><br/>
 Abstract 1 & 2 : https://github.com/leeseomin/Abstract
 
 
