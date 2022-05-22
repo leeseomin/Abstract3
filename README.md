@@ -5,7 +5,7 @@ Abstract 3 by LEE SEOMIN
  ### :o: NFT marketplaces  :point_down:
 
 
- <br/><br/>
+ <br/>
 https://opensea.io/collection/abstract-2-by-lee-seomin
 
  <br/><br/>
