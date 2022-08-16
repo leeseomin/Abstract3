@@ -202,7 +202,15 @@ Abstract 1 & 2 : https://github.com/leeseomin/Abstract
  <img src="https://github.com/leeseomin/Abstract3/blob/main/art/Untitled124.png" width="90%">    
  
  <br/><br/>
+
+
+
+
+### Untitled 126
+
+ <img src="https://github.com/leeseomin/Abstract3/blob/main/art/Untitled126.png" width="90%">    
  
+ <br/><br/>
  
  
  
