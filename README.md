@@ -221,6 +221,12 @@ Abstract 1 & 2 : https://github.com/leeseomin/Abstract
  
  
  
+### Untitled 130 : obsession 
+
+ <img src="https://github.com/leeseomin/Abstract3/blob/main/art/Untitled130.png" width="90%">    
+ 
+ <br/><br/>
+ 
  
  
  ### Author and Creator
