@@ -20,6 +20,13 @@ Abstract 1 & 2 : https://github.com/leeseomin/Abstract
  
  <br/><br/>  
 
+### Untitled 102 (red variation)
+
+ <img src="https://github.com/leeseomin/Abstract3/blob/main/art/Untitled102.png" width="90%">    
+ 
+ <br/><br/>  
+ 
+
 
 ### Untitled 126
 
